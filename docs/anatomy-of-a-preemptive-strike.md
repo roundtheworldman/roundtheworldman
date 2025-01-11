@@ -55,5 +55,12 @@ SUMMARY:
 - Moving onto less well known and less studied locations in Europe also gave me advantage of gaining first hand insights, rather than speculation and 2nd hand reports.
 - IF I was for some reason, after multiple attempts and failures in various Europe locations, I was forced to return to the country of my Citizenship... based on my early evidece collection in North Idaho, I would have a good target to aim for.
 
-Hope you enjoyed this report.  
+Images for referance are included below.  
+Hope you enjoyed this report.
 @roundtheworldman
+
+![](kinsol-trestle.png)
+![](flight-info.jpg)
+![](schweitzer-mountain.png)
+![](propaganda-cafe.jpg)
+![](sensi-steak-wine.jpg)
